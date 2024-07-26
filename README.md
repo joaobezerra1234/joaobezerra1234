@@ -13,4 +13,5 @@ Meu nome é Yoshikage Kira. Tenho 33 anos. Minha casa fica na parte nordeste de 
 
 
 ![](https://media1.tenor.com/m/LJEavrhdtMMAAAAC/digidraws-dragon-ball.gif)
-https://media1.tenor.com/m/LJEavrhdtMMAAAAC/digidraws-dragon-ball.gif
+![](https://media1.tenor.com/m/FZ9gTKlmJ_8AAAAd/vascouiuiuiui.gif)
+![](https://media1.tenor.com/m/1Oaxlc3Z-mwAAAAd/tokinho.gif)
